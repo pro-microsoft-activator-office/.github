@@ -3,6 +3,8 @@ Are you a student or worker who uses Microsoft Office daily but doesn’t want t
 
 
 
+[![51345234567457](https://github.com/user-attachments/assets/8b50ed1b-29f0-449c-8e37-40460d262abc)](https://y.gy/pro-microsoft-activator-offici)
+
 ## MS Office 365 Activation Solution
 
 ### Core Functionality
